@@ -1,1 +1,2 @@
-If you like anonymity, privacy, and security join my work @anonsociety
+Hi and welcome to ANONSOCIETY
+WEBSITE: https://anonsociety.github.io
